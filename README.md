@@ -4,4 +4,4 @@ Pake sc ini sesuka hatimu tapi jangan lupa subscribe channel aing.https://youtub
 
 ## [My YouTube Channel]
 
-🔘 https://youtube.com/c/ZizCodingDE
+🔘 https://youtube.com/@zizcodingde
